@@ -1,5 +1,5 @@
 # ViceCity
-<p align="center"><img src="http://uupload.ir/files/ezrx_vcac.png" width="512" align="center"><br>
+<p align="center"><img src="http://uupload.ir/files/suxx_vcac.png" width="512" align="center"><br>
 <strong>ViceCity Fivem Server</strong></p>
 
 * * * 
