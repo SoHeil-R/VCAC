@@ -12,5 +12,5 @@ all of the latest updates will be available there.
 
 Enjoy and have fun.
 
-# [Discord](https://discord.gg/cpgQqV2)
+# [Discord](https://discord.gg/2uZVJtf)
   
